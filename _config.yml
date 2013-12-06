@@ -1,0 +1,10 @@
+title:        in Hydings
+tagline:      "in Hidings"
+url:          http://andhyde.com
+author:
+  name:       "Daniel Shields"
+  email:      "shields.daniel@gmail.com"
+markdown:     rdiscount
+permalink:    pretty
+pygments:     true
+paginate:     5
