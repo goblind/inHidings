@@ -3,8 +3,9 @@ layout: post
 title: Un Cielo Entre Tanta Nube.
 ---
 
-Tu estrella allá arriba en lo más alto donde florecen las heridas.
+"Through me you're the obvious and you flew with it on your back."
 
 -----
 
-Me hundí en mí.
+<iframe width="420" height="315" src="http://www.youtube.com/embed/dQw4w9WgXcQ" frameborder="0" allowfullscreen></iframe>
+Quizás detrás de tanta nube en verdad no haya un cielo.
