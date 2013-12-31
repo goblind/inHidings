@@ -9,9 +9,9 @@ El interior es ácido, el exterior es dulce.
 
 Aparentemente nada. De golpe estoy en un bar con una española y un holandés que más que holandés era chino.   
 
-La noche consistía en 5 bares o boliches, en cada uno un trago que en verdad era tequila. Y bueno, eso. Imaginate, o imaginame. No llegué al segundo.  
+La noche consistía en 5 bares más boliche que otra cosa, en cada uno un trago que en verdad era tequila. Y bueno, eso. Imaginate, o imaginame. No llegué al segundo.  
 
-La española roquera se quedó a medio camino en una estación de subte y yo emprendí la dulce caminata de vuelta. Voy por la peatonal y antes de cruzar Gran Vía veo como las prostitutas van saliendo de sus recovecos. Ninguna se acerca demasiado, más bien me dicen algo a lo bajo. No las escucho, la música suena fuerte. Sigo caminando y pienso en todos esos policías, ahí, junto a ellas. Recuerdo que no cené y como por arte de magia hay un Pizza 24hs a dos metros mío. Adentro.  
+La española rockera se quedó a medio camino en una estación de subte y yo emprendí la dulce caminata de vuelta. Voy por la peatonal y antes de cruzar Gran Vía veo como las prostitutas van saliendo de sus recovecos. Ninguna se acerca demasiado, más bien me dicen algo a lo bajo. No las escucho, la música suena fuerte. Sigo caminando y pienso en todos esos policías, ahí, junto a ellas. Recuerdo que no cené y como por arte de magia hay un Pizza 24hs a dos metros mío. Adentro.  
 
 Me atiende un español, pendejo, me saca la ficha así de rápido y me da charla. Macanudísimo, en vez de hacer el *take away* me siento en la barra y le doy letra. El tipo había vivido en la calle, y cuando un borracho entró a pedir una moneda vi la remembranza en su cara; sentí pena. Le saqué más charla; vive con su novia, contento, la paga no es mucha pero ha sabido estar peor. Tira, y lo va a seguir haciendo; tiene por qué.  
 
