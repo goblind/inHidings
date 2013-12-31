@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Un Cielo Entre Tanta Nube.
+title: Un Cielo Entre Tanta Nube
 ---
 
 "Through me you're the obvious and you flew with it on your back."

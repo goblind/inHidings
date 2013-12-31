@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Arriba, Bien Arriba.
+title: Arriba, Bien Arriba
 ---
 
 Tu estrella allá arriba en lo más alto donde florecen las heridas.
