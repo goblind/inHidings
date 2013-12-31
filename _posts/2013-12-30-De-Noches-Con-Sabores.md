@@ -13,7 +13,7 @@ La noche consistía en 5 bares o boliches, en cada uno un trago que en verdad er
 
 La española roquera se quedó a medio camino en una estación de subte y yo emprendí la dulce caminata de vuelta. Voy por la peatonal y antes de cruzar Gran Vía veo como las prostitutas van saliendo de sus recovecos. Ninguna se acerca demasiado, más bien me dicen algo a lo bajo. No las escucho, la música suena fuerte. Sigo caminando y pienso en todos esos policías, ahí, junto a ellas. Recuerdo que no cené y como por arte de magia hay un Pizza 24hs a dos metros mío. Adentro.  
 
-Me atiende un español, pendejo, me saca la ficha así de rápido y me da charla. Macanudísimo, en vez de hacer el **take away** me siento en la barra y le doy letra. El tipo había vivido en la calle, y cuando un borracho entró a pedir una moneda vi la remembranza en su cara; sentí pena. Le saqué más charla; vive con su novia, contento, la paga no es mucha pero ha sabido estar peor. Tira, y lo va a seguir haciendo; tiene por qué.  
+Me atiende un español, pendejo, me saca la ficha así de rápido y me da charla. Macanudísimo, en vez de hacer el *take away* me siento en la barra y le doy letra. El tipo había vivido en la calle, y cuando un borracho entró a pedir una moneda vi la remembranza en su cara; sentí pena. Le saqué más charla; vive con su novia, contento, la paga no es mucha pero ha sabido estar peor. Tira, y lo va a seguir haciendo; tiene por qué.  
 
 Entre tema y tema se le escapó algo que me dejó pensando. Dijo que tenía una manía, no podía comer si su compañero de mesa no estaba también comiendo. Siguió y se alejó pero cuando tuve la palabra volví.  
 
