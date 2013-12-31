@@ -26,4 +26,8 @@ No supo bien qué decir, dio vueltas sobre la nada y luego retomó el hilo donde
 Abrió los ojos y se quedó pensando, cuando se le pusieron vidriosos asintió; nunca lo había pensado.  
 Retomé mi vuelta y en Fuencarral las chicas de vuelta. Esta vez pasé muy cerca de una y como aún los auriculares no estaban en su lugar la escuché. Le dije que no e insistió. La miré, sumamente joven y bonita. Me dijo que había tenido buenas experiencias con argentinos y me instó a quedarme. Lo hice, pero luego de dos minutos comprendió que lo que ella quería no era lo que yo.  
 
-Seguí mi camino ante la mirada cómplice de los policías, uno de ellos reía mientras yo pensaba en que para no sufrir las subidas hay que no abusar de las bajadas.
+Seguí mi camino ante la mirada cómplice de los policías, uno de ellos reía mientras yo pensaba en que para no sufrir las subidas hay que no abusar de las bajadas.  
+
+![alt text](http://lorempixel.com/g/400/200/abstract/ "El interior es ácido, el exterior es dulce.")
+
+
