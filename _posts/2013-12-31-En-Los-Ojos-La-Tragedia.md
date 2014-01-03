@@ -13,6 +13,4 @@ Y como si de algo más se tratase me interrumpo y me digo que hay que leer más 
 
 Me tomé una cerveza con un argelino, hablamos de Camus de política de represión de sistemas de control de vida de muerte y también de placer. Me dijo que extrañaba, mucho, y de no ser por algo que no comprendí ya estaría de vuelta con su familia. Resulta aterrador lo fácil que uno se refleja en el otro cuando se está lejos de casa.  
 
-La única solución es el amor, no veo otra salida.  
-
 La dificultad no está en sentir, sino en qué hacer una vez que éste llega. 
