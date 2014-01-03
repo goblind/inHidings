@@ -7,7 +7,7 @@ Esta noche todo puede cambiar.
 
 -----
 
-A minutos de un año nuevo. 
+A momentos de un año nuevo. 
 La única solución es el amor, no veo otra salida.  
 
 
