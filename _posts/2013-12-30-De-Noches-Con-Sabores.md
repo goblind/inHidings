@@ -7,7 +7,7 @@ El interior es ácido, el exterior es dulce.
 
 -----
 
-Aparentemente nada. De golpe estoy en un bar con una española y un holandés que más que holandés era chino.   
+Aparentemente nada. De golpe estoy en un bar con una española y un holandés que más que holandés es chino.   
 
 La noche consistía en 5 bares más boliche que otra cosa, en cada uno un trago que en verdad era tequila. Y bueno, eso. Imaginate, o imaginame. No llegué al segundo.  
 
@@ -17,7 +17,7 @@ Me atiende un español, pendejo, me saca la ficha así de rápido y me da charla
 
 Entre tema y tema se le escapó algo que me dejó pensando. Dijo que tenía una manía, no podía comer si su compañero de mesa no estaba también comiendo. Siguió y se alejó pero cuando tuve la palabra volví.  
 
--Por qué creés que te sucede eso de no poder comer cuando el otro no lo está haciendo?
+-¿Por qué creés que te sucede eso de no poder comer cuando el otro no lo está haciendo?
 
 No supo bien qué decir, dio vueltas sobre la nada y luego retomó el hilo donde lo había dejado.  
 
