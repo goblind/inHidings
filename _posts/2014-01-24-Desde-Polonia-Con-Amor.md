@@ -33,8 +33,6 @@ Estoy en el autobus, acabo de despertar y ya es de noche. No sé si en mi ventan
 Fue el autobus más hermoso y más triste de mi vida. No sabés lo que lloré Mashenka, simplemente no lo sabés. Que regalo tan grande lo que nos pasó y como si hubiera sido poco no lo quiero dejar ir. 
 Lo triste no es irse, lo triste es querer llevarte algo con vos. Y todo lo que diga, todas las palabras están de más. Al mundo se lo crea actuando.  
 
-¿Sabés qué es lo que más me gustó de vos? Tus ganas, y qué poco tiempo tuvimos porque me habría encantado descubrirlas más. Quiero verte intentarlo, quiero verte sonreír.  
-
 No te voy a olvidar, porque en un mundo lleno de certitudes también hay lugar para un quizás.  
 
 ----
