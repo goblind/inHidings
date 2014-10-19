@@ -24,5 +24,5 @@ PD 5. Voy a dejar de enumerar Post-datas y para ello me despediré con un peque�
 -----  
 
 Digamos entonces que hace unas horas gasté cerca de 600 pesos sólo para ver un partido de fútbol. Y ahora, momentos más tarde llaman desde París y me dicen que en Montparnasse la tumba de Sartre se levantó; lo vieron en pleno trotecito agitando la mano a puro grito de "Ey, vos, gordito pequeñoburgués, vení para acá, que para qué escribí todo lo que escribí."  
- 
-![Barcelona]({{ }}/assets/barca.jpeg)
+
+![Barcelona]({{ }}/assets/barca.jpg)
