@@ -3,26 +3,30 @@ layout: post
 title: Uno Entre 50 Mil
 ---
 
-El interior es ácido, el exterior es dulce.
+Cuando la falta de suceción no es problema.
 
 -----
 
-Como algunos ya saben estoy en el extranjero, el título de en qué se los debo pero así es y acá estoy. El relato que a continuación comparto tiene miedo de no estar a la altura de una primera vez; claro, no posée acción ni ejercicio sensorial que lo respalde pero aún así se anima y sale. Quiero contarles sin ton ni son que fui al Camp Nou.  
+Como algunos ya saben estoy en el extranjero, el título de en qué se los debo pero así es y acá estoy. El relato que a continuación comparto tiene miedo de no estar a la altura de una primera vez; claro, no posee acción ni ejercicio sensorial que lo respalde pero aún así se anima y sale. Quiero contarles sin ton ni son que fui al Camp Nou.  
 
 Comenzaré admitiendo la no sapiencia acerca de qué fue lo que me motivó o qué situaciones se sucedieron para que yo asista en el 2014 a un estadio de fútbol y acá la clave: fui solo, a lo cual debo admitir ya sin tapujos que no existe arrepentimiento alguno; fue espectacular.  
 
-No hay linealidad o suceción de eventos por contar, en la noche no hubo climax ni tampoco meseta, más bien diría que todo transcurrió en un estado distinto al resto; un estado en donde el análisis arrasó sólo dándome tregua para apenas situarme de manera geográfica. Comienzo entonces narrando eventos aislados sin orden ni motivo.  
+No hay linealidad o sucesión de eventos por contar, en la noche no hubo clímax ni tampoco meseta, más bien diría que todo transcurrió en un estado distinto al resto; un estado en donde el análisis arrasó sólo dándome tregua para apenas situarme de manera geográfica. Comienzo entonces narrando eventos aislados sin orden ni motivo.  
 
 El transporte público para volver del evento es mediocre casi malo, imposible movilizar tanta gente de manera rápida así por favor no creamos lo que no. Neymar es un crack. Van primeros y aún así no llenan el estadio. La gente es engreída para con su equipo pero no por megalómanos sino por tanto cariño que le tienen; esto me causó mucha ternura la cual se me fue al demonio por abusar de sí misma cuando ante un error del árbitro yo esperaba un "dale la concha de tu madre hijo de puta" y en cambio escuché "pues tío que tienes que cobrar mejor", diferencias que le dicen, ¿vio? Mientras buscaba dónde comprar mi ticket me ofrecieron reventa unas catorce veces. Messi es el crack. Realicé un escaneo profundo y exhaustivo y llegué a la clara conclusión de que en un partido de fútbol acá hay más minas que en un boliche entero un sábado por la noche en Buenos Aires. El estadio es muy bello pero nada de delirios. Me senté al lado de un negro-cara-de-buen-tipo que no paraba de decir "Oh Neymar tu ser lo más grande du galaxia." con un entrevero de acentos francés inglés y mozambiqueño; en el segundo gol me dio un abrazo y todo, nos quisimos mucho. Los jugadores se ven re chiquitos. El primer gol no lo vi porque me taparon unos asiáticos sacándose selfies. Ah, y por si no saben en la cancha nadie te relata ni tampoco hay replay. El Barcelona tiene barra brava, son 40 más o menos y estaban atrás de un arco, no pararon de cantar nunca, tenían un bombo que sonaba a destiempo. Acá no hay paty de cancha, acá hay hot-dog Frankfurt, y atenti porque también es frito y refrito. Mientras a dos cuadras del estadio esperaba el H8 para volver pasó cerca la barrabrava, iban menguando sus cánticos y me hicieron recordar allá a lo lejos cuando aún era pibe una vez viendo a River que hacía las de local en la cancha de Velez no recuerdo por qué y enfrentaba a Estudiantes, corría el '96 y era el River de Ramón, la "maquinita", un partido de mitad de campeonato pero ya todo apuntaba bien y el equipo venía en racha pero sin embargo este match estaba siendo duro hasta que de pronto el jefe Astrada abre de derecha para el Enzo pero éste tan pillo como pocos la deja pasar no sin antes darle un tacazo a la pelota para que venga como un tren el pichi Escudero al mejor estilo wing brasileño de los de antes y le de un empeinazo terrible para ponerla al lado del palo; esa noche River ganó 1 a 0 y desde la cancha de Velez nos fuimos caminando hasta Rivadavia y después hasta la estación de Ramos Mejía; éramos bastante más de 50 y no sé cuándo dejaron de cantar porque entré en mi casa y ellos aún seguían. Cuando el partido terminó el negro me pidió si le sacaba una foto a él y su señora con el estadio de fondo, me dijo "por favor buena foto muy buena foto venimos desde Marsella es momento bien importante para nosotros" y juro que me esmeré como pocas veces antes, casi me pongo a llorar. Cuando Messi hizo el tercero la gente alzó las manos al cielo y moviendo el tronco hacia adelante y atrás comenzaron a idolatrarlo mientras gritaban su apellido; se me puso la piel de gallina. A Masche lo quieren mucho y de verdad, me dio como bronquita porque Masche es como muy nuestro ¿no? Cuando me perdí el primer gol después le dije al negro que no había problema que en el entretiempo miraba el replay; se descostilló de risa, la mujer lo pellizcó y entonces él le explicó el digamos chiste y ella también comenzó a reírse muy fuerte y ambos con el pulgar en alto me decían "bueno bueno muy bueno", increíble. Antes creía, ahora corroboré, que el fútbol ya no me representa como antes; en muchos momentos me aburrí. Yo, hoy, puedo decir que vi a Messi con la selección y que también lo vi con su equipo, y Messi, querido Lionel, dejá que este imberbe ya del fútbol te lo diga desde la máxima humildad: sos el jugador más grande de la historia.  
 
 PD 1. La defensa del Barça es como la de la Argentina del Diego.  
+
 PD 2. En una ciudad así, los días de partido todos desde niños hasta gente trabajando visten la remera y los colores del equipo. Es impactante.  
+
 PD 3. El año que viene remodelan el estadio.  
-PD 4. Las canciones de la barrabrava son como las nuestras, pero más alegres, unas notas distintas que aún con la misma letra cambian el sentido. Es como si acá usasen escalas mayores mientras que nosotros allá menores. Detalle interesante.
+
+PD 4. Las canciones de la barrabrava son como las nuestras, pero más alegres, unas notas distintas que aún con la misma letra cambian el sentido. Es como si acá usasen escalas mayores mientras que nosotros allá menores. Detalle interesante.  
+
 PD 5. Voy a dejar de enumerar Post-datas y para ello me despediré con un pequeño resumen de lo que fue mi noche.  
 
 -----  
 
 Digamos entonces que hace unas horas gasté cerca de 600 pesos sólo para ver un partido de fútbol. Y ahora, momentos más tarde llaman desde París y me dicen que en Montparnasse la tumba de Sartre se levantó; lo vieron en pleno trotecito agitando la mano a puro grito de "Ey, vos, gordito pequeñoburgués, vení para acá, que para qué escribí todo lo que escribí."  
 
-![Barcelona]({{ }}/assets/barca.jpg)
+
